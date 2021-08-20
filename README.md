@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @TATA2332
 - 👀 I’m interested in ... creat games 
-- 🌱 I’m currently learning ...nothing i want to start
+- 🌱 I’m currently learning ...nothing, i want to start
 - 💞️ I’m looking to collaborate on ...My self
 - 📫 How to reach me ..my email its evitigresalvaje@gmail.com
 
